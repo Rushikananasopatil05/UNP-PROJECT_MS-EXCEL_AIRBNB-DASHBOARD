@@ -6,4 +6,7 @@
 
 3 Provided strategic suggestions for improving performance based on data insights.
 
-Project Link: https://www.canva.com/design/DAF77fRNVa4/XoYX8c5cq6jAeg5eXwqnBQ/edit?utm_content=DAF77fRNVa4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+PDF LINK : https://drive.google.com/file/d/1o61XpAHEi2pLPKW-FP6W2t-33wqzKnQC/view?usp=sharing
+
+EXCEL LINK : https://docs.google.com/spreadsheets/d/1P2XUgQUQtbXXZ-q7aBzIETsMZfq0H_0N/edit?usp=sharing&ouid=104816522539756522902&rtpof=true&sd=true
+
